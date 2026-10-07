@@ -3,9 +3,10 @@
 
 <br>
 
-  <img width="600" height="98" src="https://files.catbox.moe/8zdnml.png">
+  <img width="600" height="98" src="https://64.media.tumblr.com/0b2caf32844eb2d913b240ce7fd80feb/0babed757fdcbb2f-c3/s2048x3072/ff709fbeb1e274ebae14135bc9c870d603fa3931.pnj">
   <img wigth="600" height="410" src="https://files.catbox.moe/382ukt.png"/>
-  <img width="600" height="98" src="https://files.catbox.moe/8zdnml.png">
+  <img width="600" height="98" src="https://64.media.tumblr.com/0b2caf32844eb2d913b240ce7fd80feb/0babed757fdcbb2f-c3/s2048x3072/ff709fbeb1e274ebae14135bc9c870d603fa3931.pnj">
   
 ###
   
+[@sso_s__ on twitter]()
