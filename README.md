@@ -13,4 +13,4 @@ text text text text
 
 <br>
 
-<img align="left" wigth="300" height="371" src="https://files.catbox.moe/rbepee.png"/>
+<img wigth="400" height="195" src="https://files.catbox.moe/0t18bz.png"/>
