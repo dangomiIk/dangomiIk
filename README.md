@@ -9,4 +9,8 @@
   
 ###
   
-[@sso_s__ on twitter]()
+text text text text
+
+<br>
+
+<img align="left" wigth="300" height="371" src="https://files.catbox.moe/rbepee.png"/>
