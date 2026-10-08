@@ -9,8 +9,17 @@
   
 ###
   
-text text text text
+$\color{#E4E3E7}{\textsf{゛“ㅤ Itㅤwillㅤbeㅤlonely,ㅤwon'tㅤit? ”ㅤㅤᢉ𐭩 ࿔}}$ [credit](https://x.com/sso_s__)
 
 <br>
 
 <img wigth="400" height="195" src="https://files.catbox.moe/0t18bz.png"/>
+
+###
+
+<br>
+
+$\color{#E4E3E7}{\textsf{  ̣̣ ۟₀₀ㅤ♯1ㅤlawmanelightㅤshipper (self proclaimed)⁺ ⠀ ˚₊}}$ [credit](https://www.deviantart.com/chabeescalant/gallery)
+
+<br>
+
