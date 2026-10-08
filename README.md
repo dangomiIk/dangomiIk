@@ -19,7 +19,7 @@ $\color{#E4E3E7}{\textsf{゛“ㅤ Itㅤwillㅤbeㅤlonely,ㅤwon'tㅤit? ”ㅤ
 
 <br>
 
-$\color{#E4E3E7}{\textsf{  ̣̣ ۟₀₀ㅤ♯1ㅤlawmanelightㅤshipper (self proclaimed)⁺ ⠀ ˚₊}}$ [credit](https://www.deviantart.com/chabeescalant/gallery)
+$\color{#E4E3E7}{\textsf{  ̣̣ ۟₀₀ㅤ♯1ㅤlawlightmaneㅤshipper (self proclaimed)⁺ ⠀ ˚₊}}$ [credit](https://www.deviantart.com/chabeescalant/gallery)
 
 <br>
 
